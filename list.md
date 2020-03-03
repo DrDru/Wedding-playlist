@@ -1,5 +1,5 @@
-Ca m'enerve, Helmut Fritz
-Lady Gaga, Let's Dance
+- Ca m'enerve, Helmut Fritz
+- Lady Gaga, Let's Dance
 Jenny from the block, J-lo
 Wherenever wherever, Shakira
 One more time, Daft Punk
