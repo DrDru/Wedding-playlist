@@ -27,3 +27,8 @@
 - Could you be loved, Bob Marley
 - Alicia Keys, Empire state of mind
 - Angela, Saian supa Crew
+
+
+
+Liens utiles :
+https://www.mariage-evenementiel.fr/playlist-musique-mariage-dj-animation-musicale-soiree-dansante (bon conseil tout en bas)
