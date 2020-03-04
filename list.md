@@ -27,7 +27,8 @@
 - Could you be loved, Bob Marley
 - Alicia Keys, Empire state of mind
 - Angela, Saian supa Crew
-- Shake it off, Taylor Swift
+- Shake it off, Taylor Swift#
+- Together Again, Janette Jackson
 
 
 Liens utiles :
