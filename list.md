@@ -2,6 +2,7 @@
 
 ### 2020-04-06
 
+- Stevie Wonder – Isn’t She Lovely
 - Closetowhy – Parcels
 - Casio – Jungle
 - Dy-Na-Mi-Tee – Ms Dynamite
@@ -14,21 +15,32 @@
 - Sacré français – Dimitri from Paris
 - I’ve Got That Tune – Chinese Man
 - I Try – Macy Gray
+- Alicia Keys, Empire state of mind
 - the Sea – Morcheeba
 - The Truth (feat. Roisin & J-Live)- Handsome Boy Modeling School
 - Lemon – Troublemakers
 - Cause You Love me Baby – Deniece Williams
 - Heaven (original mix) – Kasper Bjorke
 - La la land
-
-
+- New York New York, Frank Sinatra
+- J't'emmene au vent, Louise Attaque
+- “Blinding Lights” by The Weeknd
 
 
 ## Dance
 
 ### 2020-04-06 
 https://apracticalwedding.com/wedding-songs/
+https://www.hitched.co.uk/wedding-planning/entertainment/the-ultimate-wedding-dj-song-list/
 
+- “Sugar” by Maroon 5
+- "Don't Start Now” by Dua Lipa
+- “Dance Monkey” by Tones and I
+- "Shape of You" by Ed Sheeran
+- Kings Of Leon – Sex On Fire
+- Aloe Blacc – I Need A Dollar
+- Macklemore & Ryan Lewis – Can’t Hold Us
+- Macklemore & Ryan Lewis – Thrift Shop
 - Blue brothers Everybody needs somebody to love
 - Blondie call me
 - Mickael Jean Billie Jean
@@ -76,44 +88,18 @@ https://apracticalwedding.com/wedding-songs/
 - Justin Timberlake Can's stop teh feeling
 - Calvin Harris and dua lipa 'One Kiss'
 - Superfunk Lucky star 
-- 
-
-
-### test
-
-
-
-- Ca m'enerve, Helmut Fritz
-- Lady Gaga, Let's Dance
-- Jenny from the block, J-lo
+- Lady Gaga, Let's Dance 
 - Wherenever wherever, Shakira
-- One more time, Daft Punk
-- Gangnam styly, Psy
-- Alors on dance, Stromae
-- I will survive, Gloria Gainor
-- Highway  to hell, AC/DC
-- Billie Jean, Mickael Jackson
-- Roxanne, The Police
-- Ski-Ba-Bop-Ba-Dop-Bop, Scatman
-- Think about the way, Ice mc
+- Ca m'enerve, Helmut Fritz
 - Way out, Ellen Allien
-- Left outside alone, Anastazia
-- Freed from desire, Gala
 - Wanabee, Spice girls
-- Titanium, Sya
-- Je dis M, M
-- J't'emmene au vent, Louise Attaque
-- Smells like teen spirit, Nirvana
-- Californication, Red Hot Chili Peppers
-- New York New York, Frank Sinatra
 - Ma Benz, NTM
-- Waka waka, Shakira
-- Maria Maria, Santana
-- Could you be loved, Bob Marley
-- Alicia Keys, Empire state of mind
-- Angela, Saian supa Crew
-- Shake it off, Taylor Swift#
-- Together Again, Janette Jackson
+- Alors on dance, Stromae
+- Highway  to hell, AC/DC
+- Eric Prydz – Call On Me
+- Lady Gaga – Bad Romance
+- Madonna – Hung Up
+- The Prodigy – Breathe
 
 
 Liens utiles :
